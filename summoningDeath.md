@@ -1,5 +1,21 @@
-How to summon death:
--Buy a baby to sacrifice
+Shopping List:
+-baby that needs to be sacrificed.
+-hair of the mother of the child
+- stone slabs from the ancient ruins of the indus valley civilization
+-lots and lots of charcoal
+- pure black silk blinding cord
+-glass orb on a stand
+- sharly cut bismth crystals in pyramid shape
+- steel cage
+-a lot of phosphorescent powder and mica dust
+-jar of ancient salt taken from the balck sea 
+- extremely sharp ceremonial dagger
+- the horn of a unicorn and its fresh blood contained in a jar kept out of sunlight
+- a crown of thorns of a cactus
+- Hourglass of Bone Dust
+- root of a tree struck by lightning
+- Mirror Shard of Polished Obsidian
+
 
 Mythological background on Death:
 The entity known as Azizoth, or Death, is an ancient spirit thought to have been created along with the mortal plane long ago. Many societies across the ages have had some form of belief in Azizoth, along with their own name and customs surrounding it. Furthermore, every culture has had a unique way of trying to contact the spirit and gain its favor. Most cultures have failed in this aspect, only managing to annoy or inconvenience it, resulting in cataclysmic retaliation. The best example of a botched summoning comes from the people of Easter Island, where the entire civilization mysteriously vanished. The ritual in this manual has been extensively researched and tested; showing great promise in gaining a boon from Death itself. Of all the boons possible from death, immortality may be the most attractive; beware, however, endless life may not be what you think.
